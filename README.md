@@ -1,1 +1,1 @@
-# class-6-assainment
+# class-6-assaignment
